@@ -1,4 +1,4 @@
-![Dog](https://media.giphy.com/media/TdjQAgDIkRsYm1HUbt/giphy.gif)
+![Dog](https://media.giphy.com/media/syMM0FYJvagItSt3Ze/giphy.gif)
 
 
 # Elizabeth Wearmouth
